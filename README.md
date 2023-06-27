@@ -20,10 +20,16 @@ _**..seemingly not granted, because**_:
 
 <ul>
 .. of a combination of the following 3:
+</ul>
+<ul>
 
 * things are integrated into this big physical plane we live in, without disturbing the harmony of all things. All wishes are being granted, not just ours. We’ll all still exist as individuals and as various social groups, in the established orders, all fully synchronized. The state of things is being shifted to a point where all things are harmonized all around. 
+</ul>
+<ul>
 
 * this world is very physical and very heavy. And our ability to think/wish/imagine/desire is very fast. Even when our heart’s desire is true&granted, it takes time for it to be “baked” into the slow-moving, mass-y, physical form. If you loose faith/desire/interest/patience during all these, it no longer will be brought to you. Universe won’t bring you something you yourself gave upon. 
+</ul>
+<ul>
     
 * takes a major change for you to adopt that state. It's you/your ability to adopt to that new state of life that sets how quickly your wish is being granted. Not rarely is the case that your wish is granted&right before you. But you lost don't even see it – you’re not in a receptive state.
 
