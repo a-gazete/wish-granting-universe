@@ -23,7 +23,7 @@ _**..seemingly not granted, because**_:
 </ul>
 <ul>
 
-* things are integrated into this big physical plane we live in, without disturbing the harmony of all things. All wishes are being granted, not just ours. We’ll all still exist as individuals and as various social groups, in the established orders, all fully synchronized. The state of things is being shifted to a point where all things are harmonized all around. 
+* things are integrated into this big physical plane we live in, without disturbing the harmony of all things. All wishes are being granted, not just ours. We’ll all still exist as individuals and as various social groups, in the established orders, all fully synchronized. The state of things is being shifted to a point where all things are harmonized all around. <br>
 </ul>
 <ul>
 
