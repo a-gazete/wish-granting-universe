@@ -43,7 +43,7 @@ In the middle of your daily routine – you dream of being at the beach/ideal va
 
 Is it just that you’d want to step aside, change the pace a bit.. Or that something external to view for a moment as an outsider.. ?
 
-Dreaming is something else – did you even imagine living it for 30 consecutive secs?
+Dreaming is something else – did you even imagine living it for 30 consecutive seconds?
 
 A dress being displayed at a window or a fashion show looks very appealing – makes you turn & look & look & admire & look again. But would you put it on even if you were paid to? Would you really like it if you were in it? 
 
@@ -52,11 +52,11 @@ What you really want is in you. Sincerity is the way to attain it.
 Relaxed, peaceful, honest, loving, forgiving state with/towards yourself gives you the inward trajectory. But sincerity would describe the pure, untamed, unpolluted level you’d be resonating in to get the answers you’re looking for into your consciousness. You do have all your answers in your being. You become aware of them when you attain that level. Your free-will is in your consciousness. Your subconscious already knows all there is to know. You got to attain them in your consciousness so as to say “yes/no” to them at your choice. 
 
 
-Not directly in the context/flow of this article, and yet to note briefly for relevance – 
+Not directly in the flow of this article, and yet to note briefly for relevance – 
 
-The grateful/positive state you maintain keeps you well-bonded with the things out there in this life – lays a foundation where you can further receive and build on. Your positive outlook shows you, in an outward look, the harmonious-all-around paths your deepest being already knows – for your free-will to go for if it wants to. 
+The grateful state you maintain keeps you well-bonded with the things out there in this life – lays a foundation where you can further receive and build on. Your positive outlook shows you, in an outward look, the harmonious-all-around paths your deepest being already knows – for your free-will to go for if it wants to. 
 
-Acting is wishing. You’re sustaining what you really want, doing what you can at the moment towards what you really want, and turning yourself into a fine/aware receptor for the moment your wish comes finds you. Action also is a great mood-tuner – keeps you in a positive state towards your goal – takes away all the worries, eases up things for paths to open for you out there in life. Action/work & worry are inversely proportional to one another – one always goes up when the other goes down like the two ends of a seesaw, and always up to you to choose “which”.
+Acting is wishing. You’re sustaining what you really want, doing what you can at the moment towards what you really want, and turning yourself into a fine/aware receptor for the moment your wish comes finds you. Action also is a great mood-tuner – keeps you in a positive state towards your goal – takes away all the worries, eases up things for paths to open for you out there in life. Action/work & worry are inversely proportional to one another – one always goes up when the other goes down like the two ends of a seesaw, and always up to you “which”.
 
 ## Disclaimer - Please Do Mind
 
