@@ -27,7 +27,7 @@ _**..seemingly not granted, because**_:
 
 <li> takes a major change for you to adopt that state. It's you/your ability to adopt to that new state of life that sets how quickly your wish is being granted. </li>
 
-<br>
+<p>
 
 Not rarely is the case that your wish is granted&right before you. But you lost your vision and don't even see it – you’re not in a receptive state.
 
