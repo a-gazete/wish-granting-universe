@@ -19,21 +19,18 @@ what we think we want isn’t always what we really want. What we want isn’t c
 _**..seemingly not granted, because**_:
 
 <ul>
-.. of a combination of the following 3: <br>
-<ul>
+.. of a combination of the following 3: 
 
-* things are integrated into this big physical plane we live in, without disturbing the harmony of all things. All wishes are being granted, not just ours. We’ll all still exist as individuals and as various social groups, in the established orders, all fully synchronized. The state of things is being shifted to a point where all things are harmonized all around. <p>
+<li> things are integrated into this big physical plane we live in, without disturbing the harmony of all things. All wishes are being granted, not just ours. We’ll all still exist as individuals and as various social groups, in the established orders, all fully synchronized. The state of things is being shifted to a point where all things are harmonized all around. </li>
 
-* this world is very physical and very heavy. And our ability to think/wish/imagine/desire is very fast. Even when our heart’s desire is true&granted, it takes time for it to be “baked” into the slow-moving, mass-y, physical form. If you loose faith/desire/interest/patience during all these, it no longer will be brought to you. Universe won’t bring you something you yourself gave upon. <p>
+<li> this world is very physical and very heavy. And our ability to think/wish/imagine/desire is very fast. Even when our heart’s desire is true&granted, it takes time for it to be “baked” into the slow-moving, mass-y, physical form. If you loose faith/desire/interest/patience during all these, it no longer will be brought to you. Universe won’t bring you something you yourself gave upon. </li>
 
+<li> takes a major change for you to adopt that state. It's you/your ability to adopt to that new state of life that sets how quickly your wish is being granted. Not rarely is the case that your wish is granted&right before you. But you lost don't even see it – you’re not in a receptive state.</li>
 
-* takes a major change for you to adopt that state. It's you/your ability to adopt to that new state of life that sets how quickly your wish is being granted. Not rarely is the case that your wish is granted&right before you. But you lost don't even see it – you’re not in a receptive state.
-
-</ul>
 </ul>
  
-
 _..**granted, because**_:
+ 
 <ul>
        it is our wish/subconscious, and by design. In fact, making choices and so shaping ourselves & our lives is our obligations in this life. You’re the one in charge of all your being and things around it in this physical plane. We’re brought to this life to act & be ourselves the way we to choose to. What we become is our choice and responsibility. The choices are endless. It’s always up to us and us only which way to go. Our free-will is at our conscious level, and expanding our vision/consciousness brings more and more of these choices to our awareness. Our sincere wishes all come true. Your subconscious being, which is an agent between you and the universe, never misses the desire of your heart and carries it to the universe to be fulfilled. Knowing what you want is the key. 
 </ul>
