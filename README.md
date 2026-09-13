@@ -27,6 +27,7 @@
 </span>
 </p>
 
+--------
 
 We humans are each created with free will. This is a very special gift that separates us from animals, plants and all other beings in this world. We each choose, with God’s permission and protection/watching over, the life we have, and no one else can. This world is a playground with full set of options on everything, in the scale of dualities in all combinations on whatever there is created. There are so many paths in life. Our choices are only shadowed by the way we perceive things and act on. Not even God is interfering with our choices. We each can choose good, bad, evil, weakness, prosperity, or just downright to deny God. That’s how free we are, and how generous God is. All our wishes are granted. 
 
