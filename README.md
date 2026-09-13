@@ -1,4 +1,4 @@
-# Wish-Granting Universe
+# Wish-Granting Universe<span style="color: purple !important; font-weight: bold;">*</span>
 
 
 
