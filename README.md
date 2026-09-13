@@ -33,29 +33,45 @@ I am leaving the text as is. However, I'm making this important clarification by
 
 
 <p align="right" style="margin-left: 15%;">
-<span style="color: purple;"><b !important><i>
+<span style="color: purple;"><b><i>
 _**aaaa I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**_
 </i></b></span>
 </p>
 
 
-<p align="right" style="margin-left: 10%;">
+<p align="right" style="margin-left: 15%;">
 <span style="color: purple !important;"><b><i>
 **bbbbbbbbb I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
 </i></b></span>
 </p>
 
-<p align="right" style="margin-left: 10%;">
+<p align="right" style="margin-left: 15%;">
 <span style="color: purple !important;">
 **ccccccc I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
 </span>
 </p>
 
-<p align="right" style="margin-left: 10%;">
+<p align="right" style="margin-left: 15%;">
 <span style="color: purple;">
-**ccccccc I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
+**dddddddddddddd I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
 </span>
 </p>
+
+<p align="right" style="margin-left: 15%;">
+<span style="color: purple !important;">
+**eeeeeeeee I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
+</span>
+</p>
+
+<p align="right" style="margin-left: 10%;">
+<span style="color: purple !important; font-weight: bold; font-style: italic;">
+ffffffffff I am leaving the text as is. However, I'm making **this important** clarification by stating the above, before the text itself.
+</span>
+</p>
+
+<span align="right" style="color: purple;">
+**gggggggg I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
+</span>
 
 
 We humans are each created with free will. This is a very special gift that separates us from animals, plants and all other beings in this world. We each choose, with God’s permission and protection/watching over, the life we have, and no one else can. This world is a playground with full set of options on everything, in the scale of dualities in all combinations on whatever there is created. There are so many paths in life. Our choices are only shadowed by the way we perceive things and act on. Not even God is interfering with our choices. We each can choose good, bad, evil, weakness, prosperity, or just downright to deny God. That’s how free we are, and how generous God is. All our wishes are granted. 
