@@ -30,6 +30,15 @@ By my faith then and now (I am a devout Muslim), God is unique and is the absolu
 I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.
 </i></b></span>
 </p>
+
+
+<p align="right" style="margin-left: 10%;">
+<span style="color: purple !important;"><b><i>
+aaaa I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.
+</i></b></span>
+</p>
+
+
 We humans are each created with free will. This is a very special gift that separates us from animals, plants and all other beings in this world. We each choose, with God’s permission and protection/watching over, the life we have, and no one else can. This world is a playground with full set of options on everything, in the scale of dualities in all combinations on whatever there is created. There are so many paths in life. Our choices are only shadowed by the way we perceive things and act on. Not even God is interfering with our choices. We each can choose good, bad, evil, weakness, prosperity, or just downright to deny God. That’s how free we are, and how generous God is. All our wishes are granted. 
 
 Just one thing though– God’s way, i.e. the universal subconscious is good and so are we. We aren’t designed to be bad. So, you can choose the negative and live in it as much as you like. But you can’t attain that inner peace by it.
