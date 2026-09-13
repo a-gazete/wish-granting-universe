@@ -23,7 +23,7 @@
 
 <p align="right" style="margin-left: 15%;">
 <span style="color: purple !important; font-weight: bold; font-style: italic;">
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I am leaving the text as is. However, I'm making **this important** clarification by stating the above, before the text itself.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I am leaving the text as is. However, I'm making this important clarification by stating the above explicitly, before the text itself.
 </span>
 </p>
 
