@@ -16,7 +16,7 @@ I used the concept of "universe" in an attempt to make this article equally dist
 </i></span>
 </p>
 
-<p align="right" style="margin-left: 10%;">
+<p align="right" style="margin-left: 15%;">
 <span style="color: purple;"><i>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 By my faith then and now (I am a devout Muslim), God is unique and is the absolute power over all things there are, there can be and there ever have been, including the universe in all its aspects. Therefore, all instances of the word "universe" in this article refer to God’s creative power – in all ways (and these ways are endless) God would grant them to us.
@@ -25,15 +25,15 @@ By my faith then and now (I am a devout Muslim), God is unique and is the absolu
 
 
 
-<p align="right" style="margin-left: 10%;">
+<p align="right" style="margin-left: 15%;">
 <span style="color: purple;"><b><i>
 I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.
 </i></b></span>
 </p>
 
 
-<p align="right" style="margin-left: 10%;">
-<span style="color: purple !important;"><b><i>
+<p align="right" style="margin-left: 15%;">
+<span style="color: purple;"><b !important><i>
 _**aaaa I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**_
 </i></b></span>
 </p>
@@ -43,6 +43,18 @@ _**aaaa I am leaving the text as is. However, I'm making this important clarific
 <span style="color: purple !important;"><b><i>
 **bbbbbbbbb I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
 </i></b></span>
+</p>
+
+<p align="right" style="margin-left: 10%;">
+<span style="color: purple !important;">
+**ccccccc I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
+</span>
+</p>
+
+<p align="right" style="margin-left: 10%;">
+<span style="color: purple;">
+**ccccccc I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.**
+</span>
 </p>
 
 
