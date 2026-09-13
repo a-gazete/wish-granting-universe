@@ -10,9 +10,11 @@ I used the concept of "universe" in an attempt to make this article equally dist
 </i></span>
 </p>
 
-<p align="right" style="margin-left: 15%;"><i> 
+<p align="right" style="margin-left: 15%;">
+<span style="color: purple;"><i>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;However – I am now convinced that I'm misleading the reader by hinting, although unintentionally, that the universe is a standalone agent between us, the created, and God, which we can just turn/pray to rather than turning/praying to God. At certain places, this article feels/reads like the universe itself is in charge, contradicting the unique/absolute power of God. This means denying religious faith, or even denying God. This is the very part I’d be misleading the readers of this article.
-</i></p>
+</i></span>
+</p>
 
 <p align="right" style="margin-left: 15%;"><i> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
