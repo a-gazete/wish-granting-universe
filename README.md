@@ -1,5 +1,29 @@
 # Wish-Granting Universe
 
+
+
+
+<p align="right">
+<span style="color: purple;"><i>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+I used the concept of "universe" in an attempt to make this article equally distanced from religious faiths. In those days, I justified myself in the first paragraph – the references/descriptions I'd made to one, unique, absolute-high, loving, generous God – even though it broke my "equal distance to faiths" by excluding atheism.
+</i></span>
+</p>
+
+<p align="right" style="margin-left: 15%;"><i> 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;However – I am now convinced that I'm misleading the reader by hinting, although unintentionally, that the universe is a standalone agent between us, the created, and God, which we can just turn/pray to rather than turning/praying to God. At certain places, this article feels/reads like the universe itself is in charge, contradicting the unique/absolute power of God. This means denying religious faith, or even denying God. This is the very part I’d be misleading the readers of this article.
+</i></p>
+
+<p align="right" style="margin-left: 15%;"><i> 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+By my faith then and now (I am a devout Muslim), God is unique and is the absolute power over all things there are, there can be and there ever have been, including the universe in all its aspects. Therefore, all instances of the word "universe" in this article refer to God’s creative power – in all ways (and these ways are endless) God would grant them to us.
+</i></p>
+
+<p align="right" style="margin-left: 15%;"><i> 
+I am leaving the text as is. However, I'm making this important clarification by stating the above, before the text itself.
+</i></p>
+
+
 We humans are each created with free will. This is a very special gift that separates us from animals, plants and all other beings in this world. We each choose, with God’s permission and protection/watching over, the life we have, and no one else can. This world is a playground with full set of options on everything, in the scale of dualities in all combinations on whatever there is created. There are so many paths in life. Our choices are only shadowed by the way we perceive things and act on. Not even God is interfering with our choices. We each can choose good, bad, evil, weakness, prosperity, or just downright to deny God. That’s how free we are, and how generous God is. All our wishes are granted. 
 
 Just one thing though– God’s way, i.e. the universal subconscious is good and so are we. We aren’t designed to be bad. So, you can choose the negative and live in it as much as you like. But you can’t attain that inner peace by it.
